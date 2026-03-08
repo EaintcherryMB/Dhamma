@@ -1,3 +1,3 @@
 # Dhamma
 
-Link// ➡️➡️https://eaintcherrymb.github.io/Dhamma/
+Link//https://eaintcherrymb.github.io/Dhamma/
